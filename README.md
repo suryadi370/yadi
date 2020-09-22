@@ -1,0 +1,2 @@
+# yadi
+Berjuang tanpa lelah
